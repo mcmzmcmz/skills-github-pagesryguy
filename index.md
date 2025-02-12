@@ -1,4 +1,4 @@
 ---
-title: Vote for Ry Guy and No Schoolwork at Home!
+Don't be a FlyGuy: Vote for RyGuy and No Schoolwork at Home!
 ---
 
